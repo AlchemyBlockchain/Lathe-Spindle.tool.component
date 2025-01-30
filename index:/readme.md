@@ -1,1 +1,2 @@
 - [Household Lathe Spindle Assembly DIY Small Woodworking Rotating Seat 80 Three-jaw Chuck Flange Pulley Lathe Spindle Tools New](https://www.aliexpress.us/item/3256807881155127.html)
+- [50/63 Four-jaw/Three-jaw Chuck Spindle Assembly Mini Lathe Woodworking Beads Machine Spindle Assembly DIY Lathe/Bead Machine](https://www.aliexpress.us/item/3256804928351545.html)
